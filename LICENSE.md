@@ -1,4 +1,4 @@
-#  
+#  bridger western vip Script is the best bridger western Script, featuring speed and custom skins. Safe and powerful for all your needs.
 
 
 
